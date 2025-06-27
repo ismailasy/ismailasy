@@ -40,7 +40,7 @@ If you're interested in working together on:
   Feel free to reach out!
 
 📫 How to Reach Me
-Email: ismail.asy@example.com
+
 LinkedIn: Ismaila SY
 
 ⚡ Fun Fact
